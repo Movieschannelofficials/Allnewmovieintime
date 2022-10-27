@@ -98,4 +98,4 @@ python3 bot.py
 ```
 
 𝙳𝙴𝚅𝙴𝙻𝙾𝙿𝙴𝚁 👉 [King 👑](https://t.me/King072326)                                                                                                                                                                                 
-𝙲𝙷𝙰𝙽𝙽𝙴𝙻 👉 [🎭 Movies Channel Official 🎬](https://t.me/m_house786)
+𝙲𝙷𝙰𝙽𝙽𝙴𝙻 👉 [🎭 Movies Channel Official 🎬](https://t.me/allnewmovieintime)
